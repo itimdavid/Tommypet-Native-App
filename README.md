@@ -1,4 +1,4 @@
-# Tommypet-Native-App
+# Tommypet
 
 Tommypet concentrates on providing high quality pet supplies to improve the quality of pet life and convenience of pet owners. We are a leading manufacturer focus on bulk wholesale pet clothes, vacuum pet hair clippers, vacuum pet hair trimmer, best professional dog grooming clippers, pet collars & leashes, pet cleaning and pet bowls. We provide one stop shop service for our clients from R&D, production and sales, we accept RTS or OEM & ODM orders flexibility. If you want to Free Sample!
 
